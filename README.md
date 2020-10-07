@@ -1,5 +1,6 @@
 # Endragnwn.github.io
 
-Hi bro, welcome
+Welcome.....
 
-kita semua berhak bahagia, bahagia untuk kita semua
+Kebahagiaan bukanlah tentang mendaptkan semua yang kamu inginkan, ini tentang menikmati semua yang kamu miliki. bersyukurlah dengan apa yang kamu miliki sealama ini.
+Bahagia untuk kita semuaa...
